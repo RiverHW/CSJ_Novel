@@ -1,4 +1,4 @@
-Hint Novel - Short Pro
+Mini Novel - Short Pro
 
 A selection of shorter novels allows you to read more novels in less time when you're busy.
 
